@@ -419,6 +419,7 @@ Artists selling plotter art online.
 - [inconvergent](http://buy.inconvergent.net)
 - [Ingrid Burrington](https://wares.lifewinning.com)
 - [Michael Fogleman](https://www.michaelfogleman.com/plotter)
+- [MCHN.ART](https://mchn.art)
 - [Michelle Chandra](https://www.dirtalleydesign.com/)
 - [Paul Rickards](https://shop.paulrickards.com)
 - [Pedro Alcocer](https://store.pedroalcocer.com/)
